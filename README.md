@@ -1,0 +1,1 @@
+News Aanlyzer for myself
